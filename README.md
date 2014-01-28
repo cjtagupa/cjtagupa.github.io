@@ -1,2 +1,2 @@
-cjtagupa.github.io
+Cris John Tagupa
 ==================
